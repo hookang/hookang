@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @hookang
+- 👀 I’m interested in being a good disciple of Christ, husband, father, and contributing member of society.
+- 🌱 I’m currently learning programming.
+- 💞️ I’m looking to collaborate on ... not interested in random offers.
+- 📫 How to reach me - not interested in random offers. 
